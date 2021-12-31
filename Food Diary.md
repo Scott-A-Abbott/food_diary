@@ -1,3 +1,48 @@
+# Dec 30, 2021
+- Dinner (7:30 PM):
+    - 2 Homemade Hamburgers
+        - Lettuce
+        - Sweet Pickle
+        - Cheese
+        - White Buns
+        - Hamburger Patty
+        - Condiments
+            - Ketchup
+            - Mayonnaise
+            - Mustard
+    - Tater Tots
+    - Sun Chips
+- Late night snack (11:30 PM)
+    - Flatbread Crackers
+    - Sun Chips
+## Outcome
+    Nothing to note
+
+# Dec 29, 2021
+- Lunch (2:30 PM):
+    - Mac'n'Cheese
+- Dinner (7 PM):
+    - Pepperoni pizza (2 pc)
+- Late Seconds (9 PM):
+    - Pepperoni pizza (2 pc)
+## Outcome
+    Nothing to note
+
+# Dec 28, 2021
+- Breakfast snack (11:30 AM):
+    - Granola bar
+- Dinner (7:30 PM):
+    - Costa Burrito
+        - Refried Beans
+        - Sweet Pork
+        - Rice
+        - Lettuce
+        - Cheese
+- Late night meal (10:30 PM)
+    - 2 Bean burritos
+## Outcome (9 PM on...)
+    Continued gas and minor discomfort
+
 # Dec 27, 2021
 - Early Dinner (~4:45 PM):
     - 3 potstickers

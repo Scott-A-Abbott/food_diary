@@ -1,3 +1,35 @@
+# Jan 01, 2022
+- Snacks (throughout the afternoon):
+    - Sun chips
+    - Tortilla chips
+    - Chex mix
+    - Milk to drink
+- Dinner (~7 PM):
+    - Costa quesadilla
+        - Flour tortilla shell
+        - Steak
+        - Cheese
+        - Rice
+        - Pinto Beans
+## Outcome
+    Nothing to note
+
+# Dec 31, 2021
+- Late Lunch (4:30 PM)
+    - Pastrami Sandwich
+        - Pastrami
+        - Mayonnaise
+        - Pepperjack Cheese
+        - Whole Wheat Bread
+    - Sun Chips
+- Evening Snacks (~9 PM - 12 AM)
+    - Chile (no beans) dip
+    - Tortilla chips
+    - Sun chips
+    - Chex mix
+## Outcome
+    Nothing to note
+
 # Dec 30, 2021
 - Dinner (7:30 PM):
     - 2 Homemade Hamburgers

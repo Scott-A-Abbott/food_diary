@@ -1,3 +1,70 @@
+# Jan 04, 2022
+- Snack (4 PM):
+    - Tortilla chips
+    - Mountain Dew
+- Dinner (7 PM):
+    - Tika Misala (Curry)
+        - Chicken
+        - White Rice
+        - Sauce
+# Outcome
+    Nothing to notes
+
+# Jan 03, 2022
+- Work snack (10:50 AM):
+    - Popcorn chips
+- Lunch (12 PM):
+    - Golden Corral
+        - Teriyaki chicken
+        - White sweet roll
+        - Partial cheese roll
+        - Slider
+        - Salad
+            - Iceberg lettuce
+            - Ranch
+            - Bacon bits
+            - Egg
+            - Olives
+            - Sunflower seeds
+            - Broccoli
+        - Fries
+        - Tater tots
+        - Carrot cake
+        - Jello w/whipped cream
+- Dinner (6:40 PM):
+    - Bacon ranch burger
+        - Ham
+        - Bacon
+        - Hamburger
+        - Bun
+        - Cheese
+        - Ranch
+        - Onion
+        - Jalapeno
+        - Lettuce
+    - Beer battered fries
+    - Scone
+## Outcome (9:25 AM next day):
+    Started with gas and eventually progressed to spicy diarrhea.
+
+# Jan 02, 2022
+- Afternoon Snack (2:30 PM):
+    - Granola bar
+    - Glass of milk
+    - Continued (4:45 PM)
+        - Chex mix
+- Dinner (6:45 PM):
+    - Alfredo pasta
+        - Chicken
+        - Broccoli
+    - Salad
+        - Iceberg lettuce
+        - Cesar dressing
+        - Cucumber
+    - Texas toast
+## Outcome
+    Nothing to note
+
 # Jan 01, 2022
 - Snacks (throughout the afternoon):
     - Sun chips
@@ -23,9 +90,9 @@
         - Whole Wheat Bread
     - Sun Chips
 - Evening Snacks (~9 PM - 12 AM)
-    - Chile (no beans) dip
+    - Chilli (no beans) dip
     - Tortilla chips
-    - Sun chips
+    - Sun chipss
     - Chex mix
 ## Outcome
     Nothing to note
@@ -126,7 +193,7 @@
 - Lunch (~2 PM):
     - Leftover Lasagna
 - Dinner (~5:30 PM):
-    - Mac-N-Cheese with Chille
+    - Mac-N-Cheese with Chilli
 - Post-Dinner (11 PM)
     - Thai Drunken Noodles (Tofu, Various Peppers)
     - 3 Pork Potstickers with Soy Sauce

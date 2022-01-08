@@ -1,3 +1,58 @@
+# Jan 07, 2022
+- Breakfast? (10 AM):
+    - Raspberry cream filled doughnut
+- Dinner (7 PM):
+    - Leftover Chinese
+        - Pepper beef (see below)
+        - Rice
+        - Orange chicken
+## Outcome (10 PM)
+    Mild gas and slight diarrhea accompanying soft(er) stool
+
+# Jan 06, 2022
+- Snack in afternoon
+    - Granola bar
+- Dinner (7 PM):
+    - Chinese
+        - Pepper Beef
+            - Green bell peppers
+            - Onions
+            - Black pepper
+            - Beef
+            - Red bell peppers
+            - some kind of sauce
+        - Honey walnut chicken
+        - Honey walnut shrimp
+        - 2 potstickers
+        - Rice
+        - Beef FUN
+            - Beef
+            - bean sprouts
+            - noodles
+            - other veggies
+        - Orange chicken
+        - Sesame chicken
+        - Fortune cookie
+## Outcome
+    Nothing to note
+
+# Jan 05, 2022
+- Breakfast (10 AM):
+    - Wendy's
+        - Sausage 'n egg croissant sandwich Combo
+            - Sausage patty
+            - Croissant bun
+            - swiss cheese sauce
+            - Egg
+            - Potato wedge fries
+                - "Ghost Pepper" ranch (not very spicy)
+            - Dr. Pepper
+        - Egg 'n Bacon Biscuit sandwich w/american cheese
+- Dinner:
+    - Cupbop uglypop with mandu at 7 spice
+## Outcome
+    Violently painful gas
+
 # Jan 04, 2022
 - Snack (4 PM):
     - Tortilla chips
@@ -7,7 +62,7 @@
         - Chicken
         - White Rice
         - Sauce
-# Outcome
+## Outcome
     Nothing to notes
 
 # Jan 03, 2022
@@ -32,7 +87,7 @@
         - Carrot cake
         - Jello w/whipped cream
 - Dinner (6:40 PM):
-    - Bacon ranch burger
+    - Bacon ranch burger (Chubby's)
         - Ham
         - Bacon
         - Hamburger

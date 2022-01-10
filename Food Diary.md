@@ -1,3 +1,50 @@
+# Jan 09, 2022
+- Late breakfast (11 AM):
+    - Banana nut muffin
+    - Fruit smoothie
+        - Orange juice
+        - vanilla yogurt
+        - sugar
+        - vanilla
+        - strawberry
+        - mango
+        - pineapple
+- Snack (2 PM):
+    - Pita crackers/chips
+- Dinner (6 PM): 
+    - Spaghetti
+        - Noodles
+        - Hamburger
+        - Tomato sauce
+        - Milk
+        - Seasoning
+            - onion powder
+            - salt, red pepper 
+            - black pepper
+            - garlic powder
+            - italian herbs
+        - Parmesan
+- Seconds of Dinner (9:30 PM):
+    - Spaghetti
+## Outcome (7 PM):
+    - Mild upset stomach and diarrhea
+    - Next morning: bad gas
+
+# Jan 08, 2022
+- Lunch (2:20 PM):
+    - Firehouse sub
+        - meat balls
+        - white bread
+        - cheese
+        - marinara
+    - Pickle
+    - Mtn Dew
+- Dinner (7 PM):
+    - 1-1/2 slices of pizza
+    - 2 Root beer floats
+## Outcome
+    Nothing to note
+
 # Jan 07, 2022
 - Breakfast? (10 AM):
     - Raspberry cream filled doughnut

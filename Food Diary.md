@@ -1,3 +1,36 @@
+# Jan 13, 2022
+- Snack (2:30 PM):
+    - Pita bread crackers/chips
+- Dinner (9:30 PM):
+    - Breakfast Burrito
+        - Egg
+        - Bacon
+        - Potato
+        - Cheese
+        - Tortilla
+        - **No red sauce**
+# Outcome (11 PM):
+    Mild gas. I should monitor the morning.
+
+# Jan 12, 2022
+- Dinner (~8 PM):
+    - Leftover pizza (see yesterday), 1 slice each
+    - Orange juice
+    - Maybe some milk?
+
+# Jan 11, 2022
+- Dinner (~7 PM):
+    - Pizza
+        - 2 slices of pepperoni and olive (tomato sauce)
+        - 2 slices of philly steak and green peppers (garlic parmesan sauce)
+
+# Jan 10, 2022
+- Late breakfast (12 PM):
+    - Banana muffin
+    - Maybe some milk?
+- Dinner:
+    - Chicken Parmesan Pasta
+
 # Jan 09, 2022
 - Late breakfast (11 AM):
     - Banana nut muffin

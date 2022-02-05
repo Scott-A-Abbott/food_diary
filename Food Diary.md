@@ -1,3 +1,22 @@
+# Jan 15, 2022
+- Lunch (12:30 PM):
+    - Leftover Tortellini Soup (see yesterday)
+
+# Jan 14, 2022
+- Snack (~12:30 PM):
+    - Granola bar
+- Dinner (~7 PM):
+    - Tortellini Soup
+        - Chicken
+        - Beef broth
+        - Tomatoes
+        - White beans
+        - Parmesan cheese
+        - Tortellini pasta, cheese filling
+        - Spinach
+## Outcome:
+    Nothing to note
+
 # Jan 13, 2022
 - Snack (2:30 PM):
     - Pita bread crackers/chips
@@ -9,8 +28,9 @@
         - Cheese
         - Tortilla
         - **No red sauce**
-# Outcome (11 PM):
+## Outcome (11 PM):
     Mild gas. I should monitor the morning.
+    Next morning: still mild gas, died down by the afternoon.
 
 # Jan 12, 2022
 - Dinner (~8 PM):
